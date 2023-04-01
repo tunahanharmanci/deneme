@@ -5,4 +5,3 @@ ldfjhkfj
 asşfoajkfşadkm
 ldfşkdajdşlv
 
-[lorem ipsum] (http://google.com)
